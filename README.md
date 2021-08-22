@@ -25,5 +25,5 @@ have nimble fingers to nail it.
 </p>
 
 ## Download :clipboard:
-Download the game in the release sections and get fun.
+<a href="https://drive.google.com/file/d/1gOSORxSajpuptmOyFo5KSpILbV-5qxrR/view?usp=sharing">Download the game</a> and get fun. I dare you to beat my sister's highscore.
 
